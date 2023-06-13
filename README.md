@@ -1,0 +1,2 @@
+# Tyrants
+Rude people
